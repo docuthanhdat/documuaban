@@ -4,7 +4,7 @@ Nhận thu mua đồ cũ tại hà nội
 
 <b>        <a href="tel:0977868533">Hotline: 0977.868.533 - 0949.239.866(zalo+viber)</a></b>
 
-<b>Công ty - Nhà máy - xí nghiệp - đơn vị hoặc các cá nhân - gia đình đang có những mặt hàng thiết bị vật dụng cần thay thế bằng những thiết bị vật dụng mới hoặc không có nhu cầu sử dụng nữa hãy<em> bán </em></b><b><em><a href="http://muabandocu24.com/" target="_blank" rel="nofollow noopener">hàng thanh lý</a></em> lại cho chúng tôi, bạn sẽ thu về một khoản chi phí để có thể mua sắm thiết bị mới hoặc sử dụng cho mục đích khác.</b>
+<b>Công ty - Nhà máy - xí nghiệp - đơn vị hoặc các cá nhân - gia đình đang có những mặt hàng thiết bị vật dụng cần thay thế bằng những thiết bị vật dụng mới hoặc không có nhu cầu sử dụng nữa hãy<em> bán </em></b><b><em><a href="http://muadocu24h.net/" target="_blank" rel="nofollow noopener">hàng thanh lý</a></em> lại cho chúng tôi, bạn sẽ thu về một khoản chi phí để có thể mua sắm thiết bị mới hoặc sử dụng cho mục đích khác.</b>
 
 <b>         <a href="tel:0977868533">Hotline: 0977.868.533 - 0949.239.866(zalo+viber)</a></b>
 
@@ -23,3 +23,4 @@ Nhận thu mua đồ cũ tại hà nội
 <b>           <a href="tel:0977868533"> Hotline: 0977.868.533 - 0949.239.866(zalo+viber)</a></b>
 
 <b>Với các loại mặt hàng đa dạng đủ chủng loại, bạn còn chờ gì nữa hãy gọi ngay tới <a href="http://www.docuthanhdat.com">Đồ Cũ Thành Đạt</a> nếu bạn có nhu cần </b><b><a href="https://www.facebook.com/thumuadocuhanoi" target="_blank" rel="nofollow noopener">thanh lý đồ cũ</a></b><b>, hoặc bạn có nhu cầu muốn mua <a href="https://www.facebook.com/thumuadocuhanoi">hàng thanh lý</a> hãy xem ngay danh mục các mặt hàng của công ty chúng tôi đang bán </b>
+
